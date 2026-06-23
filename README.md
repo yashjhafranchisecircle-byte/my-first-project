@@ -1,4 +1,4 @@
-# my-first-project
+# franchise circle
 Why Franchise Business is the Smartest Investment in India’s Growing Economy
 Introduction
 India’s business landscape is undergoing a dramatic transformation. With a burgeoning middle class, increasing consumer spending, and a government actively pushing entrepreneurship through schemes like Startup India and Make in India, the country has never been more primed for franchise growth.
